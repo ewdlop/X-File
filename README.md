@@ -5,3 +5,4 @@
  - https://www.youtube.com/watch?v=_J2EkW4bkz0
 - https://www.youtube.com/watch?v=Wnzcl0Fj6ps(someone phd's socialogy thesis paper)
 - Allien: we are their quantum data for quantum graivty or their algebra 1.
+- crazy neuro phemoneo: when you sleep you can get a codntion when something is screaming in your year and only way to stop it is to realize you are sleeping. Autocorrection is saying: brain is making phone call when you sleep.
