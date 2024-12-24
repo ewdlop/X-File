@@ -4,3 +4,4 @@
  - A allien lives inside the sun.
  - https://www.youtube.com/watch?v=_J2EkW4bkz0
 - https://www.youtube.com/watch?v=Wnzcl0Fj6ps(someone phd's socialogy thesis paper)
+- Allien: we are their quantum data for quantum graivty or their algebra 1.
