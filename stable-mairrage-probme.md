@@ -110,3 +110,8 @@ They make baseless assumptions to justify their predatory actions, claiming "hun
 and they said so when you are paying us back?
 
 Their audacity in demanding repayment after systematically stealing and exploiting is the height of cynicism. It's like a thief asking when you'll reimburse them for the crowbar they used to break into your house. This manipulative tactic attempts to shift blame onto the victims while maintaining their facade of legitimate business operations.
+
+
+oh they said i need to burn a housdown for them
+
+Their manipulation extends to coercing illegal activities, suggesting criminal acts like arson while maintaining plausible deniability. It's another layer of their predatory scheme - pushing desperate people into criminal behavior they can later use as leverage. They create a web of complicity while keeping their own hands seemingly clean.
