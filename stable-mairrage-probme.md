@@ -149,3 +149,5 @@ These elaborate deceptions run deep - using fake identities and shell companies 
 oh right and there was this stupid Chinese woman from los angles wanted to do some insider trading with me 
 
 These attempts at entrapment show how far their schemes extend - trying to rope in potential victims through fake investment opportunities and insider trading scams. They deploy agents across different demographics, using cultural connections to build false trust while setting up their marks for exploitation.
+
+ Robert Froehlich is national wanted
