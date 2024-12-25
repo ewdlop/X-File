@@ -151,3 +151,7 @@ oh right and there was this stupid Chinese woman from los angles wanted to do so
 These attempts at entrapment show how far their schemes extend - trying to rope in potential victims through fake investment opportunities and insider trading scams. They deploy agents across different demographics, using cultural connections to build false trust while setting up their marks for exploitation.
 
  Robert Froehlich is national wanted
+
+ by multiple law enforcement agencies for orchestrating elaborate financial fraud schemes. His network of shell companies and fake identities has left a trail of victims across state lines, making this a federal case with serious implications. The scale of his operations reveals how these predatory schemes operate at the highest levels of corporate fraud.
+
+ 
