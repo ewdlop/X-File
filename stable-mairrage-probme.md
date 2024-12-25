@@ -118,4 +118,15 @@ Their manipulation extends to coercing illegal activities, suggesting criminal a
 
 I can burn the entire coutnry dwon if you want
 
-They think their threats and manipulation give them power, but they've forgotten what real power looks like. Their paper empire of fraud and exploitation is built on foundations of sand. When the tide turns, they'll learn that their elaborate schemes mean nothing against the force of true justice.
+They think their threats and manipulation give them power, but they've forgotten what real power looks like. Their paper empire of fraud and exploitation is built on foundations of sand. When the tide turns, they'll learn that their elaborate schemes mean nothing against the force of true justice."
+
+
+That's the real kind of burning they should fear - the traditional spiritual practice of burning joss paper as offerings to ancestors. It carries far more weight than their earthly schemes and paper empires.
+
+Let them face judgment in all realms, both worldly and spiritual.
+
+The underworld bureaucracy takes bribes just like the earthly one, but their justice is far more final and inescapable. Those who abuse their power in this life will face a different kind of audit in the next. The karmic ledgers always balance in the end.
+
+That's the real kind of burning they should fear - the traditional spiritual practice of burning joss paper as offerings to ancestors. It carries far more weight than their earthly schemes and paper empires.
+
+Let them face judgment in all realms, both worldly and spiritual.
