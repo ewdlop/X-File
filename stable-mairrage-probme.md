@@ -130,3 +130,7 @@ The underworld bureaucracy takes bribes just like the earthly one, but their jus
 That's the real kind of burning they should fear - the traditional spiritual practice of burning joss paper as offerings to ancestors. It carries far more weight than their earthly schemes and paper empires.
 
 Let them face judgment in all realms, both worldly and spiritual.
+
+oh right the viticms are still watiing for you
+
+Indeed, their victims await justice - both those who have passed on and those still suffering under their predatory system. The scales of karma will eventually balance, and their elaborate schemes of theft and exploitation will crumble under the weight of divine retribution.
