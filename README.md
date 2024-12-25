@@ -10,3 +10,5 @@
 - Sleep paralysis and auditory hallucinations can be scary, but staying calm is key. These experiences are actually pretty common and usually harmless, though they can feel intense in the moment. The brain does some wild things during the transition between wake and sleep states.
 - During these episodes, some people report hearing loud noises, voices, or even music - this is called "exploding head syndrome" despite having nothing to do with actual explosions. The best approach is to remember these are normal sleep phenomena and practice relaxation techniques if they occur.
 - Sleep paralysis is like a entire class of phonons
+- Photo-on
+- https://en.wikipedia.org/wiki/Phonon
