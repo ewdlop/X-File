@@ -12,3 +12,4 @@
 - Sleep paralysis is like a entire class of phonons
 - Photo-on
 - https://en.wikipedia.org/wiki/Phonon
+- Solar Snake<https://www.msn.com/en-us/news/technology/watch-a-solar-snake-slither-across-the-sun-in-orbiter-view/vi-AA1wrAw9?ocid=msedgntp&pc=U531&cvid=d9c17360577b44e8a872ed77fdb919c8&ei=11>
